@@ -261,8 +261,8 @@ Major fact-checked falsehoods and exaggerated claims made by Donald Trump during
 
 <a href="https://www.pbs.org/newshour/politics/fact-checking-trumps-false-claims-ahead-of-the-state-of-the-union"> [2] <a href="https://www.facebook.com/nowthisimpact/videos/six-lies-twenty-eight-seconds/2531056130668328/">250,000+ Noncitizens Registered to Vote</a>: A White House fact sheet promoted by Trump claimed over 250,000 non-U.S. citizens are illegally registered across four states, but provided zero evidence or methodology to substantiate the number. [1] (https://www.npr.org/2026/07/16/nx-s1-5896448/trump-election-address)A video breakdown analyzing repeated false statements and economic claims made by Trump:
 
-Sep 11, 2026
-FACT FOCUS: A look at false and misleading claims during the Republican midterm convention
+<h2>Sep 11, 2026</h2>
+<h2>FACT FOCUS: A look at false and misleading claims during the Republican midterm convention</h2>
 
 President Donald Trump, Vice President JD Vance and other Republican officials came together for a two-day convention this week to rally voters in advance of midterm elections in November. But in celebrating their accomplishments, they made several false and misleading claims, many of which have been stated repeatedly during Trump’s second term.
 
