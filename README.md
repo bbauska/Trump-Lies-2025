@@ -250,4 +250,106 @@ like a fish so Trumpsters can take pride in killing democracy so Trump can gain 
 <h2>More LIES by Trump and Musk</h2>
 <h3>January 6, 2021 Insurrection</h3>
 
+Provably False Statements by Donald Trump in 2026
+Major fact-checked falsehoods and exaggerated claims made by Donald Trump during 2026 include:
+
+<a href="https://www.cnn.com/2026/09/10/politics/fact-check-republican-midterm-convention-night-2">"Ending" Eight or Nine Wars</a>: Trump and allies claimed he ended eight or nine wars. Fact-checkers noted this list includes diplomatic disputes that were not wars (Egypt-Ethiopia), conflicts that are ongoing (Rwanda and DRC, Israel-Gaza), and the 2025 Israel-Iran conflict despite active U.S.-Israeli military actions against Iran in 2026. [1] 
+
+<a href="https://www.cnn.com/2026/09/10/politics/fact-check-republican-midterm-convention-night-2">Securing $20 Trillion to $25 Trillion in Foreign Investment</a>: Trump repeatedly claimed to have secured over $20 trillion (and up to $25 trillion) in outside investments. Economic analysts and official reports found no evidence or data supporting these massive figures. [1] 
+
+<a href="https://www.houstonchronicle.com/news/politics/article/fact-focus-a-look-at-false-and-misleading-claims-22427464.php">Employment and Price Claims</a>: Trump asserted that more people are employed than ever and that prices are dropping rapidly. Economic tracking showed job growth slowed significantly and inflation/living costs remained high. [1] 
+
+<a href="https://www.pbs.org/newshour/politics/fact-checking-trumps-false-claims-ahead-of-the-state-of-the-union"> [2] <a href="https://www.facebook.com/nowthisimpact/videos/six-lies-twenty-eight-seconds/2531056130668328/">250,000+ Noncitizens Registered to Vote</a>: A White House fact sheet promoted by Trump claimed over 250,000 non-U.S. citizens are illegally registered across four states, but provided zero evidence or methodology to substantiate the number. [1] (https://www.npr.org/2026/07/16/nx-s1-5896448/trump-election-address)A video breakdown analyzing repeated false statements and economic claims made by Trump:
+
+Sep 11, 2026
+FACT FOCUS: A look at false and misleading claims during the Republican midterm convention
+
+President Donald Trump, Vice President JD Vance and other Republican officials came together for a two-day convention this week to rally voters in advance of midterm elections in November. But in celebrating their accomplishments, they made several false and misleading claims, many of which have been stated repeatedly during Trump’s second term.
+
+They covered topics including the economy, jobs, healthcare and the 2020 election. Trump spoke both nights and Vance gave the keynote on Thursday.
+
+Here’s a closer look at the facts.
+
+Exaggerations about jobs and the economy
+VANCE: “We’ve created 1 million new jobs, and unlike the last administration, where most of the job growth went to illegal aliens, 100% of the job growth in the United States of America is going to American citizens.”
+
+THE FACTS: Overall, the United States has added 807,000 jobs since Trump took office for his second term, close to Vance’s claim of 1 million. But by historical standards, it’s not a particularly large increase.
+
+New jobs have averaged about 80,000 a month this year. That’s up from 2025’s dismal rate of about 9,700 a month on average. But job creation remains well below what was seen during the Biden administration. In 2024 and 2023, 166,000 monthly jobs were the norm — and the hiring boom that followed pandemic lockdowns brought numbers closer to 491,000 a month during 2021 and 2022.
+
+Meanwhile, Vance’s claim that all jobs added under Trump have gone to American citizens is misleading and needs context. It is based on data that is highly distorted by population changes, and the Labor Department and independent economists strongly discourage using the government’s figures to measure how many jobs are held by immigrants or native-born Americans.
+
+Instead, most economists recommend looking at unemployment rates to get a sense of how native-born and foreign-born workers are faring. And since Trump’s inauguration in January 2025, the unemployment rate for native-born Americans has risen to 4.6% from 4.3%, suggesting the economy hasn’t been a boon for American citizens.
+
+Foreign-born workers, meanwhile, have seen their unemployment rate drop sharply, from 4.6% to 3.4%, from January 2025 through August. The foreign-born population includes legal immigrants and naturalized citizens as well as undocumented immigrants.
+
+Even those figures could be distorted by the Trump administration’s immigration crackdown, which may have caused some immigrants to avoid responding to government surveys, economists say.
+
+Several <a href="https://www.upjohn.org/research-highlights/immigration-crackdown-minneapolis-how-operation-metro-surge-affected-local-economy">studies released</a> in recent months <a href="https://www.brookings.edu/articles/ice-enforcement-employment-effects-us-cities/">have found</a> that the sharp increase in deportations under Trump has slowed hiring and growth in the communities where they have taken place. Many immigrants have stayed home during the crackdowns to avoid being arrested, cutting into shopping and spending. And some small businesses that have lost foreign-born workers have struggled to replace them and have taken on less work.
+
+___
+
+SCOTT BESSENT, treasury secretary, speaking Wednesday: “Under this president, more Americans are working than ever before.”
+
+THE FACTS: This is true, but missing context. The economy adds jobs most months, so U.S. payrolls are continually hitting new highs. Jobs have increased in the United States in 65 of the past 80 years.
+
+In Trump’s second term, however, job growth has slowed considerably. Last year, companies, government agencies and nonprofits added just 9,700 jobs a month — the weakest hiring outside a recession since 2002. So far this year, they’ve been creating 92,000 jobs a month, considerably better but unimpressive by historical standards.
+
+During President Joe Biden’s four years in office, employers added an average of nearly 329,000 jobs a month. Those totals were inflated by a record-breaking hiring surge in 2021 and 2022 that followed the end of COVID-19 lockdowns. But even in Biden’s last two years — 2023 and 2024 — job growth averaged 166,000 a month.
+
+High interest rates, Trump’s own immigration crackdown and the retirement of Baby Boomers are contributing to lower job growth.
+
+___
+
+TRUMP, discussing investment in the U.S.: “We have more money being spent from outside countries and companies — over $20 trillion.”
+
+THE FACTS: Trump has cited an increasingly higher number for investments in the U.S. throughout his second term, claiming on Wednesday that the number could go up to $25 trillion. But he has presented no evidence that he has secured this amount of funds from either foreign or domestic sources.
+
+Based on statements from various companies, foreign countries and the White House’s own website, that figure appears to be highly speculative and far higher than the actual sum.
+
+The <a href="https://www.whitehouse.gov/investments/">White House website</a> offers a far lower number, $11.2 trillion, and that figure appears to include some investment commitments made during the Biden administration.
+
+___
+
+MIKE JOHNSON, House speaker, on Thursday: “At the end of the first Trump administration, the inflation rate was 1.4%. Yeah. But Joe Biden came in and he reversed the policies and brought us to a 40-year high of 9.1% inflation.”
+
+THE FACTS: This is missing context. <a href="https://www.bls.gov/charts/consumer-price-index/consumer-price-index-by-category-line-chart.htm">Inflation was at</a> 1.4% in 2021 as Biden assumed the presidency, having risen from a low of 0.1% in May 2020, two months into the COVID-19 pandemic. It continued to increase steadily in the first 17 months of Biden’s presidency, reaching a peak of 9.1% in June 2022.
+
+However, it had dropped to 2.9% in December 2024 as Biden prepared to leave office. During Trump’s second term so far, inflation rose to a high of 4.2% in May. As of August, it was at 3.4%.
+
+___
+
+TRUMP: “The stock market has set 80 all-time record highs.”
+
+THE FACTS: It’s unclear what exact stock market measure Trump is referring to. But the S&P 500 — an index for the biggest public companies in the U.S. — has hit a record 66 times since the start of Trump’s second term in January 2025, including 27 new highs since the start of this year, per a count from investment research firm CFRA. It’s hit 76 records since the 2024 presidential election.
+
+U.S. stocks soared to their last record <a href="https://apnews.com/article/stock-markets-ai-semiconductors-fed-energy-3a23f22469cd0e0062f711096906525c">on Aug. 13</a>, as part of a broader rally driven by a surge in company profits and then-easing oil prices. But renewed fighting between the U.S. and Iran, as well as an escalation in supply chain disruptions elsewhere, has led to more market volatility since. This week, for example, the international benchmark for crude oil <a href="https://apnews.com/article/oil-prices-iran-attack-saudi-brent-crude-7538e6386a819bcdc2547d530ec3472e">soared past the $100 mark</a> for the first time in months.
+
+Beyond the war, some of the biggest market swings this year have resulted from the frenzy ( <a href="https://apnews.com/article/stocks-markets-ai-iran-trump-rates-65449e9565fba441a617f9517e097f5a">and skepticism</a> ) around the value of <a href="https://apnews.com/hub/artificial-intelligence">artificial-intelligence</a> technology.
+
+<h2>The reality of healthcare costs</h2>
+VANCE: “We actually took on big pharma and lowered drug costs for all of our citizens.”
+
+THE FACTS: Federal data shows that U.S. prescription drug prices fell 0.9% in July and are down 3.1% from a year ago, the steepest year-over-year drop since 1963. The White House said these plunging prices resulted from Trump’s “most favored nation” drug deal with pharmaceutical firms and the TrumpRx website, which it said are “delivering real relief to American families and putting patients first.”
+
+But drug pricing experts say the real picture is more complicated, noting that other factors, including a law from Biden’s time in office that allowed Medicare to negotiate with pharmaceutical companies, are potentially more significant contributors to the latest consumer price index figures. Also at play are generic and biosimilar products that have come onto the market, offering competition that drives down the prices of expensive brand-name and biologic drugs.
+
+Plus, consumers may not see this price drop in what they pay for medication, as it reflects what pharmacies get paid for the drugs, both by insurers and consumers.
+
+<h2>2020 election redux</h2>
+TRUMP: “When I’m on the ticket, Republicans always do very well. We won the presidency three times.”
+
+THE FACTS: Trump won the presidency in 2016 and 2024, but he did not prevail in the 2020 race, despite his repeated claims otherwise.
+
+Biden earned 306 electoral votes to Trump’s 232, achieving victory by prevailing in key states such as Pennsylvania, Michigan, Wisconsin, Arizona and Georgia. The Democratic candidate also earned over 7 million more popular votes than Trump.
+
+Trump’s allegations of massive voting fraud have been refuted by a variety of judges, state election officials and members of his first administration who were in office during the 2020 election.
+
+___
+
+Associated Press writer Wyatte Grantham-Philips in Chicago and economic writer Christopher Rugaber in Washington contributed to this report. ___
+
+Find AP Fact Checks here: https://apnews.com/APFactCheck.
+
+
 
